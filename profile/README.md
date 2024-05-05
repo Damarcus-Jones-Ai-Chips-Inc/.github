@@ -5,7 +5,7 @@ Key Points:
 2. Registration is not required for copyright protection, but it does provide certain benefits, such as the ability to sue for infringement and seek statutory damages.
 3. To register a copyright, the creator must submit an application, a copy of the work, and a filing fee to the Copyright Office.
 4. The copyright registration process can take several months to complete, but once registered, the copyright is valid for the life of the creator plus 70 years.
-5. It is important to register a copyright to establish a public record of ownership and to deter others from using the work without permission.## Hi there 👋
+5. It is important to register a copyright to establish a public record of ownership and to deter others from using the work without permission.## Damarcus Jones Ai Chips 👋
 
 <!--
 
